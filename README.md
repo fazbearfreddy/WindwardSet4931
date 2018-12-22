@@ -1,0 +1,2 @@
+# WindwardSet4931
+Welcome Windward here and i'm here to tell you guys about fortnite battle royale its a fun game mode in the original fortnite its got creative mode pvp mode and so much more there are in battle royal its creative mode gives you 3 hours of play mode in creative as you build your own fortnite courses with friends using unlimited resources in the game and in save the world you get over a hundred weapons to choose from Join Now for free and fortnite will become more of an upgrade
